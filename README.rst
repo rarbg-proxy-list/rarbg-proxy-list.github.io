@@ -3,14 +3,18 @@ IF you cannot access the original sound or your ISP has forbidden it. So don't w
 
 Using proxy sites is considered a safe and fast option compared to the other methods.
 
-[https://therarbg.com](https://therarbg.com)\
-[https://the.rarbg.club](https://the.rarbg.club)\
-[https://t-rb.org](https://t-rb.org)\
+[https://therarbg.com](https://therarbg.com)
+
+[https://the.rarbg.club](https://the.rarbg.club)
+
+[https://t-rb.org](https://t-rb.org)
+
 [https://trb.archivebay.online](https://trb.archivebay.online)
 
 More unblocked torrent sites at:
 
-[https://trb.t-pb.org](https://trb.t-pb.org)\
+[https://trb.t-pb.org](https://trb.t-pb.org)
+
 [https://trb.themirror.wiki](https://trb.themirror.wiki)
 
 However, those who have had the unfortunate circumstance of searching for the perfect proxy sites will know that they are not easy to find. Luckily, we've made a list of the best RARBG proxy sites for you so that you can download the best RARBG torrents with no restrictions.
