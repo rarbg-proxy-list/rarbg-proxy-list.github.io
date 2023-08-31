@@ -1,0 +1,5 @@
+site_name: RARBG PROXY LIST
+site_url: https://therarbg.com
+nav:
+  - Home: README.md
+theme: readthedocs
